@@ -12,7 +12,7 @@
 	2. Guilt
 	3. The Way to Heaven	
 3. [Summary](#Summary)
-	1. Begining
+	1. Beginning
 	2. Middle
 	3. End	
 4. [Miscellaneous](#Miscellaneous)
